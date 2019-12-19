@@ -1,1 +1,0 @@
-# scottbromander.github.io
